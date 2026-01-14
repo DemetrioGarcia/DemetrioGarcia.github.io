@@ -1,1 +1,0 @@
-# DemetrioGarcia.github.io
